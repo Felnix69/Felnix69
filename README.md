@@ -1,10 +1,8 @@
 - i like geometry dash and roblox
-- i make websites idk
 - idk for this part
-- if u wanna collab w me then just ask me
 - i like mashed potatoes
 - my pronouns are he/him/bro
-- Mac and Cheese Burger
+- uranium sandwhich
 
 <!---
 Felnix69/Felnix69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
